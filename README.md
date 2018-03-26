@@ -1,2 +1,4 @@
-# hello-world
-i am an artist a performance artist.I am hired for people to fulfill their fantastic.Their deep dark fantastics.
+-----------------------------------------------------
+Group name: deep dark fantasy.
+Group members: 倪忠杰(Student ID201632120125),
+-----------------------------------------------------
